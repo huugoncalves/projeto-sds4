@@ -8,10 +8,10 @@
 
 * See some images of the project:
 
-<img src="https://prnt.sc/1rw44mr">
+<img src="https://ibb.co/f4Qdfrr">
 
-<img src="https://prnt.sc/1rw49va">
+<img src="https://ibb.co/0q03PpG">
 
-<img src="https://prnt.sc/1rw4b5n">
+<img src="https://ibb.co/vYgWF91">
 
 Thank you for your attention, patience and help. 👊 Goodbye!
