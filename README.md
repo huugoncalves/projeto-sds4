@@ -8,10 +8,10 @@
 
 * See some images of the project:
 
-!(https://ibb.co/f4Qdfrr)
+https://ibb.co/f4Qdfrr
 
-!(https://ibb.co/0q03PpG)
+https://ibb.co/0q03PpG
 
-!(https://ibb.co/vYgWF91)
+https://ibb.co/vYgWF91
 
 Thank you for your attention, patience and help. 👊 Goodbye!
